@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @nyanko513
-- 👀 I’m interested in Design
+- 👀 I’m interested in UI/UX Design
 - 🌱 I’m currently learning Digital Art and Design
 - 📫 How to reach me landnhe150208@fpt.edu.vn
 
